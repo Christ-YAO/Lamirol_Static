@@ -1,0 +1,1 @@
+# Lamirol_Static
